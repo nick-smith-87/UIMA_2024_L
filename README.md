@@ -1,1 +1,1 @@
-# UIMA_2024_L
+# UIMA 2024 Group L
